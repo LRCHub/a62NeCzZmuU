@@ -1,0 +1,90 @@
+# Pay money To my Pain – Voice
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Through all of this noise
+Chasing a shadow
+Why looking for answers,
+just leaves a question?
+Behind the notes
+And outside the lines
+What you left behind
+What I feel inside
+I hear your voice…
+鳴り響いた
+何かを知らすためのサイレン
+ほら　今日のここにはまだ
+気づかぬふりして歩く人
+過ぎゆく時の中に
+僕らは何を見つけだして
+まだ見ぬ未来に
+何を抱くことができる?
+Through all of this noise
+Chasing a shadow
+Why looking for answers,
+just leaves a question?
+Behind the notes
+And outside the lines
+What you left behind
+What I feel inside
+I hear your voice…
+鳴り終わる
+その音はその後も
+まだ僕らのカラダん中
+残響が埋め尽くしている
+そこから聞こえてくるモノは
+言葉やメロディではなくて
+今の僕の中で生きている彼の声
+Through all of this noise
+Chasing a shadow
+Why looking for answers,
+just leaves a question?
+Behind the notes
+And outside the lines
+What you left behind
+What I feel inside
+We are your voice
+We are still with you
+When you can’t speak,
+with so much to say
+More than a word
+More than a melody
+What you left behind
+What I feel inside
+I hear your voice…
+Through all of this noise
+Chasing a shadow
+Why looking for answers,
+just leaves a question?
+Behind the notes
+And outside the lines
+What you left behind
+What I feel inside
+We are your voice
+We are still with you
+When you can’t speak,
+with so much to say
+More than a word
+More than a melody
+What you left behind
+What I feel inside
+We’re not alone
+Through all of this noise
+Chasing a shadow
+Why looking for answers,
+just leaves a question?
+Behind the notes
+And outside the lines
+What you left behind
+What I feel inside
+We are your voice
+We are still with you
+When you can’t speak,
+with so much to say
+More than a word
+More than a melody
+What you left behind
+What I feel inside
+I hear your voice…
+```
